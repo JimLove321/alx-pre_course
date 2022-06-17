@@ -1,1 +1,1 @@
-I'm not a software engineer yet
+This phone is expensive
